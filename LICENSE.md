@@ -1,4 +1,4 @@
-
+Get the ultimate Hola VPN extension with updated Hola VPN Extension | dedicated-IP + PPTP-support. Featuring dedicated-IP and PPTP-support, it's the best choice for secure and
 
 
 
